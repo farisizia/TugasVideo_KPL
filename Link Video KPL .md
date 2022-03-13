@@ -1,5 +1,7 @@
 
 # TugasVideo_KPL
 Link Youtube Video
-https://youtu.be/mL5VxAkKGkg
+https://www.youtube.com/watch?v=NXiQnjnrXzk
+
+
 
